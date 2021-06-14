@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking for a better team
-- 🥅 Nex Goals: Work with a exception Project
+- 🥅 Next Goals: Work with a exception Project
 - ⚡ Fun fact: I love to sing and play guitar
 
 ### Connect with me:
